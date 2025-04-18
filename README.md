@@ -1,3 +1,4 @@
+![E](club-penguin-dj.gif)  
 "Break it down fellas!"  
 ![E](dancing-letter-letter-e.gif)
 ![L](dancing-letter-letter-l.gif)
