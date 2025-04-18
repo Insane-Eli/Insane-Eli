@@ -1,4 +1,4 @@
-"come on cranky take it to the fridge"  
+come on cranky take it to the fridge  
   
 ![dj](cranky-dj.gif)  
 ![E](dancing-letter-letter-e.gif)
